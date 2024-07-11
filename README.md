@@ -1,4 +1,4 @@
-# Welcome netizens 🤖
+# Hey netizens 🤖
 
 I'm Yaine Garcerant, I live in Barranquilla, Colombia. 
 
